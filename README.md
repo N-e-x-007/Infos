@@ -1,2 +1,41 @@
-# Infos
-what is this whaa
+# ‎‧₊˚✧Some general infos✧˚₊‧
+⊹
+★
+
+
+
+
+
+# ‎‧₊˚✧Boundaries✧˚₊‧
+
+
+
+
+
+
+
+# ‎‧₊˚✧DNI if:✧˚₊‧
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
